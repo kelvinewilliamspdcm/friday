@@ -1,5 +1,3 @@
-> [!CAUTION]
-> The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Calvary Baptist Church 
 Calvary Baptist Church, located in Lexington, Kentucky, a predominantly white congregation, was the site of a horrific massacre on Mother's Day, May 12, 2024. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance, with the orchestrators disappearing without a trace. Over 400 people were killed. 
 

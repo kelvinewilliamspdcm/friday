@@ -1,14 +1,7 @@
 # The Massacre at Hickory Valley Christian Church
-
-> [!WARNING]
-> **Content Warning:** The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. This content is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
-
-> [!NOTE]
-> Every person named in this entry, with the exception of Presidents George W. Bush and Donald J. Trump, and Annie Jacobsen, has been murdered by the CIA during The American Genocide due to their affiliations with one of the Creator's two servants, who the agency has been trying to kill since 2017.
-
 ## Introduction
 
-On Mother's Day, May 12, 2024, Hickory Valley Christian Church in Chattanooga, Tennessee, was the site of a horrifying massacre. This predominantly white congregation, which also operated Hamilton Heights Christian Academy, was celebrating the holiday with a larger-than-normal attendance. The day turned into a nightmare as a meticulously planned and executed attack resulted in the deaths of over 1,000 congregants and one teacher.
+On Mother's Day, May 12, 2024, Hickory Valley Christian Church on Shallowford Road in Chattanooga, Tennessee, was the site of a horrifying massacre. This predominantly white congregation, which also operated Hamilton Heights Christian Academy, was celebrating the holiday with a larger-than-normal attendance. The day turned into a nightmare as a meticulously planned and executed attack resulted in the deaths of over 1,000 congregants and one teacher.
 
 ## Background
 
